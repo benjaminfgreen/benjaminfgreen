@@ -1,3 +1,3 @@
 - I’m @benjaminfgreen
-- I am a from the University of North Carolina at Asheville
+- I am a graduate from the University of North Carolina at Asheville
 - You can reach me at benjaminfgreen@gmail.com
